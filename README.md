@@ -1,1 +1,0 @@
-# balinasoft-test
